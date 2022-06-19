@@ -1,6 +1,6 @@
 ### Hi there 👋 My name is Cristina AKA CrxsTagz
 
-I'm a Telematic Engineer Student trying to survive 😂
+I'm a Telematics Engineer Student trying to survive 😂
 
 - 🔭 I’m currently working on getting ahead of my game
 - 🌱 I’m currently learning everything youtube can teach me 
